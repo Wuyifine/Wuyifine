@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Wuyifine
+- 🌱 I’m currently learning in SCHOOL OF AERONAUTICS AND ASTRONAUTICS SYSU 
+- 📫 How to reach : wuyf226@mail2.sysu.edu.cn
+- ⚡ Fun fact: nothing to find 
